@@ -6,3 +6,4 @@
 - meu sonho é o cristiano ronaldo entrar no corinthians
 - ![](https://media.tenor.com/tUfYeY94bPgAAAAj/goose-dancing.gif)
 - ![](https://media1.tenor.com/m/4c6-vNszrIkAAAAd/obrigado-corinthians-f%C3%A3-do-corinthians.gif)
+-![](https://media.tenor.com/LsYPAE9JiP8AAAAM/rolando-ronaldo.gif)
